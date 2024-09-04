@@ -1,0 +1,4 @@
+ExemploCasseA
+ExemploCasseA
+ExemploCasseA
+ExemploCasseA
